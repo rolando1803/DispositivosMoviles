@@ -69,7 +69,65 @@ MAPAS Y GPS
 ![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/9f2f9361-2c74-4594-a7d6-8700937464ad)
 ![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/e6cb8be4-b6b3-45da-aaf5-07ac1b85b560)
 
+SENSORES
 
+![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/9db7ebfc-0b5f-4464-8f41-9b754572f733)
+![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/29a1ee8d-0e4b-4fa7-bcf0-2bf46e47221c)
+![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/b6045e00-528f-4686-9a92-b2a3c1a0bc3f)
+![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/24eaf354-40a9-4a56-9e4a-6976f5db5ed9)
+
+MULTIMEDIA
+
+![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/7609c245-861f-4bee-9e98-cee0040f4ac8)
+![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/c6d4b330-235f-4b5b-b43d-c38c419b8dc0)
+
+WIDGETS
+
+![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/2f87ed6f-9739-4da3-9d17-8070a99b217c)
+![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/4622b80f-e809-4e76-92f3-ca91d5a54186)
+![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/b2561027-aa2d-416b-a5cb-29c914809937)
+![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/4949ef80-713e-4cbd-93b0-cdb0cbaec6e8)
+![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/bd534764-a431-40f6-959d-11ae59f236b3)
+![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/6cf5e77e-180e-4301-9926-92ceb9f1fe23)
+![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/06fa7765-73a1-416c-a506-a8d2eeed822a)
+![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/c5418976-9cac-4e13-987b-af5e0897332f)
+![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/31a03c4e-2db3-4ab0-b6cc-21997b08cbff)
+![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/b2e0c204-b77c-4c5c-b6b0-13768b3a19f8)
+![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/de5c10bc-b3b7-4e5a-80cb-de64937af72e)
+![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/d996f042-3c6c-45b2-b01d-2ba1ae28aacb)
+![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/7110f8e3-e45a-4d8c-8132-aa2de71a2fcd)
+![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/4c0f46ed-b92e-4bfe-b428-e801cedc7911)
+![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/ec897f31-c1b7-4f77-be35-2030d1818627)
+![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/35b28a8d-0ade-460e-9d79-4f9db3bd6ab2)
+![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/3b81bb32-1f09-478d-a40e-ad212bc7b75a)
+![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/1dc41346-94cf-41f9-9bac-41b0f2cc2273)
+![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/30389095-7da2-4563-8ae1-660c9fe760cb)
+![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/d0dc56de-9ab8-4341-8237-d1540c1d4f8e)
+![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/b2fe9acf-86bc-4bf0-a13e-1c40625443de)
+![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/5bc39f2c-0ca4-458e-9f13-6ad7f1609f02)
+![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/03fc13d5-07a3-4056-bbfc-44746de8f450)
+![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/65ef8f46-41ae-4d13-a16f-119b5c19df94)
+![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/53f9c12c-9e29-4c93-8bfe-d50b9964e145)
+![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/6f9868ed-bf3f-4eb5-bd41-0d0193ef9045)
+![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/37988872-2c79-4313-adc4-5e197e687819)
+![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/889a01b7-5a13-4425-99e5-0231c19eea46)
+![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/129f3632-9213-48b8-bdde-bc6c8133c0ac)
+![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/cfc1981c-cfbc-4794-9676-f9fca97a7ea8)
+![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/16af8d51-4975-4b7b-b4dc-9f8a6c25a97d)
+![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/8e444c0e-2624-475e-ac5d-754c62480aa3)
+![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/461f699c-2da3-41b1-ade3-118ed5f443f2)
+![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/6b4c6c79-aa03-4126-b709-679e35ed3220)
+![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/1704f2af-82c9-4dd1-8212-c84b90a8d61e)
+![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/43059e59-a8fc-4f53-9ae2-e62f83708ef1)
+![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/cc8e593c-dac5-42a8-8cc3-656676d3c67f)
+![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/be4405a7-44f0-4c1d-b1df-03009f2bd528)
+![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/82b15241-197c-4d0e-9414-c453184954b0)
+![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/ddbf1fee-b71b-492c-80bd-9a127c75c0b9)
+![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/8de98916-731f-45ec-878f-00c76058fd4d)
+![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/255d5f72-f192-4add-aa85-c028fe1a31c9)
+![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/e918664b-e47a-4516-9f3f-eea2c381b5c1)
+![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/29eb11e1-de47-4120-b7c8-5f038b6174f5)
+![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/a7ae3b11-a379-4872-9c61-51efb9228e94)
 
 
 
