@@ -182,6 +182,16 @@ RECUERDA
 ![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/275bb5fa-5cc6-47ad-946a-f25343a0a977)
 ![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/0383a1ec-f9bd-4b15-9113-4f1e68ff6bbd)
 
+Evaluacion
+
+![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/5a9c2b89-169c-47c0-91ab-5ba2433ac0cf)
+![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/e2388074-9f4f-4f25-ae1e-19a4b41f532a)
+![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/77043dcf-7b5f-4c82-bd91-f8a358a9f6b6)
+![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/52e8ef93-2a6f-4553-af0b-deb3d81ddca8)
+![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/0fda7b42-27b8-4168-9947-d684bda52cd5)
+
+
+
 
 
 
