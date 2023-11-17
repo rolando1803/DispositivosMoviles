@@ -77,8 +77,17 @@ MODELOS DE NEGOCIO
 ![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/c219ad71-dc15-41cf-a342-9c63b49455d0)
 ![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/4ab60639-a948-4d03-84be-55f3d5c0d9fd)
 
-
 RECUERDA
 
+![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/217acaaa-b08d-4a0c-8552-8696d9e3139f)
 
 ATOEVALUACIONES
+
+![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/c083253d-5f8b-4e7a-8ece-bd39d56f0ebd)
+![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/3f8bd131-fa00-4cca-be86-83b8aec3523b)
+![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/55f3cea5-2128-4d41-9b47-dce706c2c575)
+![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/ccce5484-25d8-4fac-b61f-17039dfffd91)
+![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/4e4417a9-b659-4dd2-bd90-cb6aa978c688)
+
+
+
