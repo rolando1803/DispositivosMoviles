@@ -168,6 +168,19 @@ SERVICIOS WEB
 ![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/a84197b2-9cad-4dc9-9de1-2d1058b9d22a)
 ![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/d036cd08-e928-4a87-95f9-cb7171e179e7)
 
+BLUETOOTH
+
+![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/01666ce1-232a-4f93-9b83-e5f98ec174b4)
+![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/ad6bdf44-4e13-4794-be11-1197c4e62097)
+
+
+RECUERDA
+
+![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/4294e632-7cda-4beb-9ad2-9755149febfa)
+![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/419bd2da-7dee-4daa-ad36-c1e26dccb02e)
+![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/197436fe-96cc-45b2-97ee-ca031d833627)
+![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/275bb5fa-5cc6-47ad-946a-f25343a0a977)
+![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/0383a1ec-f9bd-4b15-9113-4f1e68ff6bbd)
 
 
 
