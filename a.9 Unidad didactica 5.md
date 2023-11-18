@@ -151,7 +151,13 @@ RECUERDA
 
 ![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/de1d72d3-4ae9-407e-9de0-116b39a65708)
 
+AUTOEVALUACION
 
+![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/18e39fea-78db-4214-a79c-f86b1b115541)
+![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/1a3d71e0-4772-468f-88b8-3886f8742e77)
+![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/faa17e9d-f2dd-4f5e-84f0-c4bff2b71b06)
+![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/88b90a02-4eef-4ea7-bd0f-88efc775c1b8)
+![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/93239493-ea39-4671-a9c4-462d87652091)
 
 
 
