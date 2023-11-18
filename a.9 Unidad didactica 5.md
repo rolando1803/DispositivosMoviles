@@ -128,6 +128,15 @@ METODOLOGIA AGILES
 ![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/669e93a0-e2eb-44d4-87fe-d0945dfb286c)
 ![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/539dc708-2606-44b7-8315-e6f2ed5b4f7f)
 
+SELECCION DE PLATAFORMA Y PUBLICO
+
+![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/bcced075-b0b9-49ac-bbe1-c232b80f51f4)
+![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/d4fa510d-9d55-48b4-b145-23e6f7850b03)
+![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/e0cc7420-9aa1-4e92-8c15-12dca1fc052a)
+![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/0ce88d18-ce98-4efa-9bcd-e77bfbbc4c5f)
+![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/c447a4c4-95a2-4708-914f-e39aa994eb52)
+
+
 
 
 
