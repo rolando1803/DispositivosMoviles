@@ -137,7 +137,19 @@ SELECCION DE PLATAFORMA Y PUBLICO
 ![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/c447a4c4-95a2-4708-914f-e39aa994eb52)
 
 
+SEGUIMIENTO Y MANTENIMIENTO
 
+![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/643ac848-1d59-47cc-aea1-5229d06d84ee)
+![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/7a81791e-f81c-4a53-af63-70b983c8ea88)
+![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/b247e93a-896e-4c67-9c05-cce5245ded8b)
+![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/7cfff945-fafa-4b99-8c50-21881fd4f7dc)
+![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/863ef5b0-bec2-474e-a650-37ad15105cea)
+![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/878ca1d2-bc29-4e69-a5de-160a8d7adb15)
+![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/6957a3d1-36ec-4619-ae2e-d8876fc48023)
+
+RECUERDA
+
+![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/de1d72d3-4ae9-407e-9de0-116b39a65708)
 
 
 
