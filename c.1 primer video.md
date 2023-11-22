@@ -28,4 +28,13 @@
 ![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/f253d936-cd79-4efe-9881-83042e15cad9)
 ![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/accfaba0-fdee-4a23-a13e-74b72dcb62f8)
 ![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/c0768713-1b3d-4e5e-b594-678c4136d988)
+![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/ad6dc0a2-039e-4e60-93b9-45bf3204d772)
+![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/b33d511f-bd61-4028-a6d1-7fd81c91b504)
+![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/e7273d8e-4df7-418e-9e61-0a4bd190dded)
+![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/40067d9a-efb3-4db6-9ea1-d2dd7f8cd501)
+![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/aa3c98e0-d80b-49c2-947f-b72c5fe89a98)
+![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/8814711a-f0d9-491a-b0b8-4641991b9c79)
+![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/ce08e2e6-d7dc-441e-b3e7-62d765ec5648)
+![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/380b65d7-cfb4-45d1-a5a0-d01633692e32)
 ![Uploading image.png…]()
+
