@@ -40,6 +40,23 @@
 ![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/41e8f78d-deeb-44c0-8e78-89e221446b6b)
 ![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/fba73504-9bfb-401d-b840-b372c7724fe3)
 ![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/e5caa268-ae35-4792-9db1-a87a4548c919)
+![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/0476d91c-5dfa-4589-8383-6068fa1556ce)
+![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/1cc9ceb2-1469-4110-a2c5-316b3c271ab4)
+![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/254e7089-7509-4517-adcb-04ecd624785d)
+![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/252ec6c0-6ff6-4a2d-bd05-f20d5f2e1dc1)
+![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/cd00cdde-e1bc-4fa0-9e3f-dae248e1f804)
+![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/796bddb7-82b7-49d2-a25a-8c3b7938ebb7)
+![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/c7e035e1-0d9f-4636-8849-e74897378897)
+![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/2b3444b5-5583-4907-a676-924a8bb8a308)
+![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/ae6b7e17-1cf6-4da5-ae2e-cd5dd4425cc4)
+![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/546f085d-b3d4-40aa-97e0-26e6b2ddd0ba)
+![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/4fc53781-592b-4669-8298-6699c315ba27)
+![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/13b732b7-c20e-4afa-8c74-4315f0c1ad8d)
+![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/39d8c56b-f1b5-4dc3-b9ec-e63e1de8f0bb)
+![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/eb5d7c73-1a65-4b19-bf5d-5f4159586271)
+![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/8fdad759-f794-491e-8e8e-e73e2313d1dc)
+![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/12c5b6d4-314f-474b-86d8-9d6782e2b8b2)
+![image](https://github.com/rolando1803/DispositivosMoviles/assets/55965131/32452907-55aa-4377-a8ca-b0a4bc34028b)
 
 
 
